@@ -1,6 +1,6 @@
 # Maverick
 
-Persian. Dancer, entertainer, freestyle footballer.
+Persian.
 
 - Instagram: https://www.instagram.com/mavandmary
 - YouTube: https://www.youtube.com/@mavandmary
